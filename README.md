@@ -14,7 +14,7 @@
 
 **星辰VPN官方注册入口：**
 
-[星辰VPN官方注册入口](https://xc1.luniu8.com/?code=Qx78EUBP)
+[星辰VPN官方注册入口](https://xc1.luniu8.com/?code=K6FEbDcS)
 
 如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
 
@@ -181,6 +181,6 @@ VIP版标称每月450GB流量，适合拿来和标准版比较。
 
 想进一步了解星辰VPN当前的套餐、注册方式和使用说明，可以通过下面的入口查看：
 
-[星辰VPN官方注册入口](https://xc1.luniu8.com/?code=Qx78EUBP)
+[星辰VPN官方注册入口](https://xc1.luniu8.com/?code=K6FEbDcS)
 
 建议购买前先确认套餐价格、月度流量、设备限制和续费规则，再根据自己的实际需求选择。
